@@ -1,1 +1,0 @@
-drvt69talati

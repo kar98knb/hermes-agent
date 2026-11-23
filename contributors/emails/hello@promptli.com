@@ -1,1 +1,0 @@
-promptli-dev
